@@ -1,1 +1,1 @@
-![](pop_cat.gif)
+![](cat_vibing.gif)
